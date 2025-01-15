@@ -1,0 +1,1 @@
+The most important is to ensure that I fully understand the work as this will help me learn the concepts and pay closer attention to detail. I will need the skills when completing the learnership and for a formal workplace position.
